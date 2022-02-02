@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Carazycam
+- 👀 I’m interested in Rythm Games, and Homosexual activitys.
+- 🌱 I’m currently learning a propper education.
+- 💞️ I’m looking to collaborate on my mental health.
+- 📫 How to reach me: You don't.
